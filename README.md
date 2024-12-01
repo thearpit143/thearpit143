@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @thearpit143
+- 👀 I’m interested in Ethical hacking and sometime Rapping
+- 🌱 I’m currently in Computer Science and Engg
+- 📫 How to reach me Email - thearpit143@gmail.com
+- 😄 Pronouns: fullmoon
+- ⚡ Fun fact: Me
